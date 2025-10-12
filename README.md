@@ -1,6 +1,6 @@
 <h1 align="left">💫 Hi 👋, I'm Narayan Pandey</h1>
 
-**A passionate Full-Satck Developer || AI/ML || Digital Marketing from India**
+**A passionate Full-Stack Developer || AI/ML || Digital Marketing from India**
 
 Email Me 👉 ✉️ **narayanpandey1326@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
