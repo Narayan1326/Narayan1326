@@ -8,7 +8,7 @@ Email Me 👉 ✉️ **narayanpandey1326@gmail.com** For Collaboration/Project o
   
 - 📫 How to reach me : **narayanpandey1326@gmail.com**
   
-- ⚡ **Fun fact:** I Love Tech and Tech Love Me
+- ⚡ Fun fact : **"Just one last bug" is always a lie.**
 
 ## 🏆 GitHub Trophies
 ![](https://github-profile-trophy.vercel.app/?username=Narayan1326&theme=default_repocard&no-frame=false&no-bg=false&margin-w=4)
