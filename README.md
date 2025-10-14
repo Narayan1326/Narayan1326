@@ -5,6 +5,8 @@
 Email Me 👉 ✉️ **narayanpandey1326@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
 - 🌱 I’m currently learning : **AI/ML and Database**
+
+- 💬 Ask me about : **AI Tools**
   
 - 📫 How to reach me : **narayanpandey1326@gmail.com**
   
