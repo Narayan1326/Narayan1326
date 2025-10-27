@@ -12,6 +12,8 @@ Email Me 👉 ✉️ **narayanpandey1326@gmail.com** For Collaboration/Project o
   
 - ⚡ Fun fact : **"Just one last bug" is always a lie.**
 
+---
+
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=narayan1326&label=Profile%20views&color=0e75b6&style=flat" alt="narayan1326" /> </p>
 
 ![](https://github-profile-trophy.vercel.app/?username=Narayan1326&theme=default_repocard&no-frame=false&no-bg=false&margin-w=4)
